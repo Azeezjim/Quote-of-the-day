@@ -1,6 +1,7 @@
-# Quote-of-the-day"I tell clint say i no well i no go work today and e gree as we talk for phone as my voice sharp like town crier baba say i can hear you are feeling better.
+# Quote-of-the-day"
+Every moment is worth fighting for
 
-I wish i can have a bit of ajebutter in me oh God but the Edo blood no fir hide." 
+" 
 
 devAzeezjim
 
