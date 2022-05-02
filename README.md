@@ -4,7 +4,7 @@ Every moment is worth fighting for
 " 
 
 devAzeezjim
-Nawho give up, f up  
+Who dey cry dey see road 
 #100Devs 
 
 #WeMetOnTwitter https://t.co/JJ34Id0YNm
