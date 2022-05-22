@@ -3,7 +3,5 @@
 "Every moment is worth fighting for" 
 
 devAzeezjim
-Who dey cry dey see road 
-#100Devs 
-
+My system got bad today, I couldn't work the whole day I'm feeling really bad right now, can't even catch some sleep 
 #WeMetOnTwitter https://t.co/JJ34Id0YNm
