@@ -1,6 +1,6 @@
 # Quote-of-the-day
 
-"Every moment is worth fighting for" 
+"getting ready for my AltSchool exam day 3" 
 
 devAzeezjim
 Preparing for AltSchool exam
