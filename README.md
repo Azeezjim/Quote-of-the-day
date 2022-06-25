@@ -1,6 +1,6 @@
 # Quote-of-the-day
 
-"getting ready for my AltSchool exam day 3" 
+"getting ready for my AltSchool exam day 4" 
 
 devAzeezjim
 Preparing for AltSchool exam
