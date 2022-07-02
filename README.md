@@ -3,5 +3,5 @@
 "getting ready for my AltSchool exam day 4" 
 
 devAzeezjim
-Preparing for AltSchool exam
+Didn't code today 
 #WeMetOnTwitter https://t.co/JJ34Id0YNm
