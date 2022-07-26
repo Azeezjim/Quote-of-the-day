@@ -3,5 +3,5 @@
 "getting ready for my AltSchool exam day 4" 
 
 devAzeezjim
-Feeling sick 
+Working hard 
 #WeMetOnTwitter https://t.co/JJ34Id0YNm
